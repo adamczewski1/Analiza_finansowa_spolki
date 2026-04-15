@@ -1,0 +1,1 @@
+# Analiza_finansowa_sp-ki
